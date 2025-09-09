@@ -14,7 +14,7 @@
 📫 Reach me:  
 - 💼 [LinkedIn](https://linkedin.com/in/usamarathore)
 - 🌐 [Freelancer Profile](https://www.upwork.com/freelancers/~01ee3eb6f279c4e19f)
-- 📧 [Email]usamaahmadrathore@gmail.com
+- 📧 usamaahmadrathore@gmail.com
 
 ⚡ Fun fact: Seen Niagara Falls 🌊 over 100 times, and still not bored!  
 <!--
